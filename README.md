@@ -1,0 +1,1 @@
+MegaMonster Fridge is a 2" thick pink foam fridge big enough to fit just one Mega-sized Monster Energy Drink and will cool it for my taste buds to enjoy.
